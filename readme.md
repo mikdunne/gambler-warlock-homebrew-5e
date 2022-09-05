@@ -1,3 +1,5 @@
+Gambler Warlock Homebrew 5e Patron
+
 I’ve had an idea for a Warlock Patron rattling around my head for a while and wanted to bring it to life. 
 The Gambler
 “I was desperate. I had nothing left. It was my last piece of silver, and it was all down to a roll of the dice. I would give anything to win this next round.”
